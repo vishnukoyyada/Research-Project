@@ -1,4 +1,3 @@
 # Research-Project
 
-
-https://chatgpt.com/share/6a1f1ee7-f318-8329-91cf-5d301eee5c9a
+https://chatgpt.com/c/6a20434c-97b4-832c-8447-ae98df5cf3cb
